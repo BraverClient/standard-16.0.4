@@ -1,3 +1,5 @@
+![5077109_transparent](https://github.com/user-attachments/assets/7148e070-8625-4d13-9a3f-86e278aac658)
+
 <h1 align="center">
   <a href="https://standardjs.com"><img src="https://cdn.rawgit.com/standard/standard/master/sticker.svg" alt="Standard - JavaScript Style Guide" width="200"></a>
   <br>
