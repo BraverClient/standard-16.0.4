@@ -1,5 +1,5 @@
 ![5077109_transparent](https://github.com/user-attachments/assets/7148e070-8625-4d13-9a3f-86e278aac658)
-![Adsız](https://github.com/user-attachments/assets/6c3a66f2-17bf-42fa-b00b-b317a3a9ee92)
+![Adsız](https://github.com/user-attachments/assets/6662951c-07a5-43f8-bfc6-d64f2e569124)
 
 <h1 align="center">
   <a href="https://standardjs.com"><img src="https://cdn.rawgit.com/standard/standard/master/sticker.svg" alt="Standard - JavaScript Style Guide" width="200"></a>
