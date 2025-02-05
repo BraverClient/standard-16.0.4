@@ -1,6 +1,6 @@
 ![5077109_transparent](https://github.com/user-attachments/assets/7148e070-8625-4d13-9a3f-86e278aac658)
 	
- <img src="pano.jpg" alt="StarTeknoloji logo" style="height: 1000px; margin: 0 auto 4rem auto; background: transparent;" class="demo-logo"><img src="https://github.com/user-attachments/assets/27ce1f01-d824-454b-8e07-f17e0967c614" alt="1738339969360">
+![Adsız](https://github.com/user-attachments/assets/88831704-eaa4-446f-8555-3c2cf198d6d2)
  
 ***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
 ***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
