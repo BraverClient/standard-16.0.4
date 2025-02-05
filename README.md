@@ -1,5 +1,6 @@
 ![5077109_transparent](https://github.com/user-attachments/assets/7148e070-8625-4d13-9a3f-86e278aac658)
 ![Adsız](https://github.com/user-attachments/assets/bfe1c286-cd25-4ef8-9074-d675a90f178d)
+[![Adsız2](https://github.com/user-attachments/assets/51973dbb-3449-4090-a769-fdbdfaacb998)](https://github.com/StarTeknoloji/Starnet/blob/StarTeknoloji/shop.md)
 
 <h1 align="center">
   <a href="https://standardjs.com"><img src="https://cdn.rawgit.com/standard/standard/master/sticker.svg" alt="Standard - JavaScript Style Guide" width="200"></a>
