@@ -1,7 +1,7 @@
 ![5077109_transparent](https://github.com/user-attachments/assets/7148e070-8625-4d13-9a3f-86e278aac658)
 
-![Adsız](https://github.com/user-attachments/assets/551c6c97-ca2d-43d1-a751-cdf54947c855)
- 
+ ![Adsız](https://github.com/user-attachments/assets/9b479c42-ee3f-442a-9e98-86b6bf446fce)
+
 ***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
 ***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
 [![Adsız2](https://github.com/user-attachments/assets/51973dbb-3449-4090-a769-fdbdfaacb998)](https://starteknoloji.github.io/Starnet/shop)
