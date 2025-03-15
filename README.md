@@ -1,13 +1,3 @@
-![colorful-welcome-sign-background-600nw-2499209233](https://github.com/user-attachments/assets/68c6367e-fe2b-43c2-b910-6dabdfd5af91)
-![Adsızstar](https://github.com/user-attachments/assets/a947db9c-9399-405f-abd2-b007b38917ee)
-![5077109_transparent](https://github.com/user-attachments/assets/7148e070-8625-4d13-9a3f-86e278aac658)
-![Adsızlı24](https://github.com/user-attachments/assets/9eea727f-d52c-4167-b6ca-2a8d55a8526e)
-
-***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
-***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
-![Adsız989898](https://github.com/user-attachments/assets/0d87564d-0a1d-42ac-a30d-f763b13438c8)
-[![Adsız2](https://github.com/user-attachments/assets/51973dbb-3449-4090-a769-fdbdfaacb998)](https://starteknoloji.github.io/Starnet/shop)
-
 <h1 align="center">
   <a href="https://standardjs.com"><img src="https://cdn.rawgit.com/standard/standard/master/sticker.svg" alt="Standard - JavaScript Style Guide" width="200"></a>
   <br>
