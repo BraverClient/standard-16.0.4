@@ -1,7 +1,7 @@
 ![colorful-welcome-sign-background-600nw-2499209233](https://github.com/user-attachments/assets/68c6367e-fe2b-43c2-b910-6dabdfd5af91)
 ![Adsızstar](https://github.com/user-attachments/assets/a947db9c-9399-405f-abd2-b007b38917ee)
 ![5077109_transparent](https://github.com/user-attachments/assets/7148e070-8625-4d13-9a3f-86e278aac658)
-![Adsızlı24](https://github.com/user-attachments/assets/c147b409-498e-4350-a0b5-c773278898b8)
+![Adsızlı24](https://github.com/user-attachments/assets/c34a3e9e-abec-4feb-b888-aba41bde7fc8)
 
 ***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
 ***---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------***
